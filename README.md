@@ -1,5 +1,5 @@
 # hello-world
-Hi CucuCrazy Guys!
+
 
 I'm here to learn new coding skills and to try to give a better opportunnity to myself to do something new!
 
