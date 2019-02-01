@@ -16,5 +16,5 @@ My story is long but, I think I can share a very brief part of what I was doing 
 
 Afterwords, and after work, I’m driving to places far away to take the most impressive pictures and to know all the beautiful places close to us. 
 
-
+Please write me an email at ithvaandres@gmail.com. Follow me in Instagram https://www.instagram.com/ucknowv/ & Twitter https://twitter.com/hvaandres14
 
