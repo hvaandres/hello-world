@@ -1,7 +1,7 @@
 # HELLO - WORLD
 
 
-My name is Andres Haro, I have 25 years old, and I’m currently attending college to get my bachelors degree in Technology Management with an emphasis in Computer Science. 
+My name is Andres Haro, I have 25 years old, and I’m currently attending college to get my bachelors degree in Web & App Development with an emphasis in Technoly Management. 
 
 To be honest, this is the first time that I'm creating something fun for myself. In other words, I’m putting together all my creativity, ideas, and coding experience to be able to fit in the tech world.
 
